@@ -11,6 +11,6 @@ Gratitude & mana:
 - 🤔 I’m looking for help with Machine learning Recommendation systems.
 - 💬 Ask me about anything you want to kaow.
 - 📫 How to reach me: aashutoshkumar748@gmail.com
-- 😄 Pronouns: TheMasterStroker
+- 😄 Pronouns: He/His/Him/Legend/TheMasterstroker
 - ⚡ Fun fact: I can fly when no one is watching.
 
